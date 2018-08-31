@@ -10,3 +10,9 @@ dfmmdf;sf;smfa
 
 am
 asmfl
+erf
+df
+sf
+s
+ssf
+f
